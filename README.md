@@ -49,7 +49,7 @@ Thiws pwogwam pwints out the wowds hewwo wowwd!:
 31 OwO OwO @w@                                                        Ceww #5 iws 32 fow the space
 32 °w° QwQ @w@                                                        Subtwact 1 fwom ceww #4 fow 87 tuwu give a 'W'
 33 °w° @w@                                                            Ceww #3 was set tuwu 'o' fwom the end of 'Hewwo'
-34 UwU UwU UwU @w@ @w@                                                Pwint 'w' two times
+34 OwO OwO OwO @w@ @w@                                                Pwint 'w' two times
 35 °w° °w° °w° QwQ QwQ QwQ QwQ QwQ QwQ QwQ QwQ QwQ QwQ QwQ @w@        Subttwact 11 fwom ceww #3 fow 'd'
 36 OwO OwO UwU @w@                                                    Add 1 tuwu ceww #5 gives us an excwamation point
 37 OwO OwO UwU UwU @w@                                                Awnd finawwy a newwine fwom ceww #6
